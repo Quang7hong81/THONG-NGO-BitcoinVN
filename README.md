@@ -6,7 +6,7 @@ N JBuy bn Bitcoin and private information quickly and safely |  BitcoinVN O M KM
  Over-the-counter (finance), JavaScript, Vietnamese alphabet, Vietnam, Trader  (finance), Dynamic Adaptive Streaming over HTTP, ERC-20, 
  BCH code, British Tabulating Machine Company, Batch file, Vietnamese dong, Saigon FC, .io, 
  
- Buy Bitcoin fast and easily in Vietnam in 2021 | BitcoinVN
+ Buy Bitcoin fast and easily in Vietnam in 2021
 
  bitcoinvn.io/en
 
@@ -38,3 +38,19 @@ News Channel - Information and Knowledge for Crypto Investment Participants
  
 
  Bitcoin, Cryptocurrency, Ho Chi Minh City, Bitcoin Cash, Blockchain, Tether (cryptocurrency), SegWit, Money, Financial technology, Subscription business model, Over-the-counter (finance), Infographic, Copyright, Adverti
+
+BitcoinVN listing USDC stablecoin for direct purchase/sale with Vietnamese Dong - BitcoinVN News
+
+ news.bitcoinvn.io/bitcoinvn-listing-usdc/?lang=en
+
+BitcoinVN listing USDC stablecoin for direct purchase/sale with Vietnamese Dong - BitcoinVN News BitcoinVN is adding USDC as a further Stablecoin option for its customer base to purchase directly with VND.
+
+Stablecoin, Tether (cryptocurrency), Vietnamese đồng, Customer base, Business, LinkedIn, Facebook, Bitcoin, Telegram (software), Option (finance), Vietnamese language, Over-the-counter (finance), Sales, News, Market liquidity, Trader (finance), Pricing, Market capitalization, Unbanked, Broker 
+
+BitcoinVN in Frankfurt - BitcoinVN News
+
+ news.bitcoinvn.io/bitcoinvn-in-frankfurt/?lang=en
+
+BitcoinVN in Frankfurt - BitcoinVN News Thoughts of BitcoinVN CEO - Nguyen Tran Bao Phuong on the team's activities during the trip to Germany in September 2019.
+
+Chief executive officer, Business, Frankfurt, Bitcoin, News, Meetup, LinkedIn, Facebook, Telegram (software), Public relations, Chief operating officer, Office management, Over-the-counter (finance), Corporation, Transparency (behavior), Company, Vietnam, Coworking, Frankfurt Airport, German language,
