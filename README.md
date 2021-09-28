@@ -55,6 +55,6 @@ BitcoinVN in Frankfurt - BitcoinVN News Thoughts of BitcoinVN CEO - Nguyen Tran 
 
 Chief executive officer, Business, Frankfurt, Bitcoin, News, Meetup, LinkedIn, Facebook, Telegram (software), Public relations, Chief operating officer, Office management, Over-the-counter (finance), Corporation, Transparency (behavior), Company, Vietnam, Coworking, Frankfurt Airport, German language, 
 
-## Assign: THONG NGO
+## Author: THONG NGO
 
 
